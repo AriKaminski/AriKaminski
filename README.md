@@ -6,7 +6,7 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on becoming a python developer. I have several projects and am currently working on school work.
 - 💬 Ask me about PC building, PC gaming, and the Philadelphia Eagles.
-- 📫 How to reach me: You can reach me at arkaminski93@gmail.com . 
+- 📫 How to reach me: You can reach me at arkaminski93@gmail.com . I also stream every now and then on twitch. My twitch username is Vanski_Pog
 
 - ⚡ Fun fact: I own a 12 year old pitbull rescue named Van. Here is a picture of him in my front yard.
 
