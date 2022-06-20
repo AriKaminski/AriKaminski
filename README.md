@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-### My name is Ari Kaminski, welcome to my special repository!
+### My name is Ari Kaminski, welcome to my github!
 
 
 - 🔭 I’m currently working on becoming a python developer. I have several projects and am currently working on school work.
