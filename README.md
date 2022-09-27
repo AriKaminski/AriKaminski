@@ -7,7 +7,7 @@
 
 - ♟ I am learning to play chess on chess.com. I am currently floating around 900 rating in rapid chess.
 
-- 📫 How to reach me: You can reach me at arkaminski93@gmail.com . I also stream every now and then on twitch. My twitch username is Vanski_Pog
+- 📫 How to reach me: You can reach me at arkaminski93@gmail.com , or arkaminski93@icloud.com
 
 
 I own a 12 year old pitbull rescue named Van. Here is a picture of him in my front yard.
