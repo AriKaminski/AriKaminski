@@ -1,6 +1,4 @@
-## Hi there 👋
-
-### My name is Ari Kaminski, welcome to my github!
+### My name is Ari Kaminski, welcome to my github.
 
 
 - 💬 Ask me about PC building, PC gaming, and the Philadelphia Eagles.
