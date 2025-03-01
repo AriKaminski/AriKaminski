@@ -3,7 +3,7 @@
 
 - 💬 Ask me about PC building, PC gaming, and the Philadelphia Eagles.
 
-- 📚 I am an avid reader. I enjoy reading thrillers and historical fiction and non-fiction. Some of the books I have enjoyed this past year are Will, Once there were wolves, and The Alchemist.
+- 📚 I am an avid reader. I enjoy reading thrillers and historical fiction and non-fiction. Some of the books I have enjoyed this past year are The Secret History, Stoner, and The Midnight Library.
 
 - ♟ I am learning to play chess on chess.com. I am currently floating around 900 rating in rapid chess.
 
